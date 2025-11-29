@@ -1,0 +1,1 @@
+# Mening amaliy ishlarim
